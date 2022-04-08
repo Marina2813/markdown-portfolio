@@ -1,1 +1,3 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+*written in these walls are the stories that I cant explain*
+*i leave my heart open but it stays write there empty for days*
+**THERE IS STILL HOPE**
